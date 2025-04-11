@@ -1,4 +1,4 @@
-### Olá! Meu nome ébLuana Pereira dos Santos 👋
+### Olá! Meu nome é Luana Pereira dos Santos 👋
 
 [![Linkedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/luana-pereira-dos-santos-6aa6a0102/)
 
